@@ -2,9 +2,9 @@
 
 **03 second** - Get Your March 2024 Coin Master Free Spins, Coins, and Links Now! Simply Tap "Collect Now" and Open Instantly in Coin Master.
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
  
 Coin Master's allure lies in its Free Spins, which act as the lifeblood of the game. These spins fuel players' progress, allowing them to build and upgrade their villages. Each spin of the slot machine presents an opportunity to earn coins, essential for constructing buildings and enhancing village features. Moreover, spins also enable attacks and raids, adding a competitive edge as players engage in looting other players' villages.
 
